@@ -3,3 +3,6 @@ Böbreğinizin Fazlalık Olduğunu Düşünüyorsanız Aşağıdaki e-mailden Bi
 
 İletişim:
 insana1böbrekyeter@gmail.com
+     
+      
+                                           --KOPTİX GAME--
